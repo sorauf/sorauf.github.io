@@ -1,5 +1,2 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+A while ago I realized that I have no place to share all the random things that I am passionate about, working on or just thinking about. 
+So I decided to create a place where all of it can come together. 
